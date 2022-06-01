@@ -23,6 +23,11 @@ Le domaine nous propose une participation de 5 euros ou plus si affinités ;)
 Pour le reste, vous pourrez participer au frais des repas ou vous laisser inviter par l'organisation.  
 Nous souhaitons que les contraintes financières ne soient pas un frein à votre venue.  
 
+### Qui organise ?
+Cet évènement est co-organisé par [Manon Clouzeau](https://manonclouzeau.com/) et les membres de l'association [Brut de Thé](https://www.brutdethé.fr) : Stéphane Langlois, Thaïs Erbs et Violaine Andrieux.  
+  
+On imagine que le festival sera co-organisé par les personnes présentes lors de cette résidence.  
+
 ## Comment ça va s'organiser ?
 Nous proposons de partir sur le format d'animation : [forum ouvert](https://www.colibris-lemouvement.org/sites/default/files/content/forumouvert_fiche_pratique_19052017_1.pdf)  
   
@@ -32,17 +37,29 @@ Une fois cette étape réalisée il ne nous restera plus qu'à plancher pour con
   
 La clé du forum ouvert, c'est : **"la loi des pieds"** - chaque personne est invitée à suivre ses envies, passer d'un atelier à un autre ou préférer les informelles par exemple.
 
-### Le premier jour
-
+### Le 8 juillet, premier jour
 - **Ouverture** : Présentation des espaces d'activités et du format d'animation
 - Chaque personne peut proposer et présenter les sujets de ses ateliers
 - **Place du marché** : on plannifie le lieu et l'heure de l'atelier
 - **Lancement des sessions de travail** : durée 1h (2 le matin et 2 l'après midi)
 - buffet pour le midi
 - clôture des ateliers, rétrospective
+- informelles, sessions de thé
+
+### Le 9 juillet, second jour
+- **Ajustement** : On ajuste le programme en tenant compte de ce qui s'est passé la veille
+- **Lancement des sessions de travail** : durée 1h (2 le matin et 2 l'après midi)
+- buffet pour le midi
+- clôture des ateliers, rétrospective
+- informelles, sessions de thé
+
+### Le 10 juillet, troisième jour
+- **Ajustement** : On ajuste le programme en tenant compte de ce qui s'est passé la veille
+- **Lancement des sessions de travail** : durée 1h (2 le matin et 2 l'après midi)
+- buffet pour le midi
+- clôture des ateliers, rétrospective
 
 ### Quelques exemples de sujets que nous pourrions traités :
-
 - Qui fait quoi ?
 - Disposition des espaces d'animation dans le parc
 - Sponsoring
