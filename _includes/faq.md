@@ -19,7 +19,7 @@ C'est précisément dans le sud de la Charente à [Saint Romain 16070](https://g
 Vous pouvez vous rapprocher en train à la gare de Chalais, ligne Bordeaux/Angoulème. Vous ne serez plus qu'à 11km et nous pourrons passer vous récupérer.  
 
 ### Participation aux frais ?
-Le domaine nous propose une participation de 5 euros ou plus si affinités ;)  
+Le domaine nous demande une participation de 5 euros par personne.
 Pour le reste, vous pourrez participer au frais des repas ou vous laisser inviter par l'organisation.  
 Nous souhaitons que les contraintes financières ne soient pas un frein à votre venue.  
 
@@ -68,3 +68,11 @@ La clé du forum ouvert, c'est : **"la loi des pieds"** - chaque personne est in
 - Programme des animations
 - Restauration et hébergement des organisateurs et exposants
 - Budget
+
+## La logistique, ça se passe comment ?
+Les personnes qui le souhaite peuvent arriver la veille ou/et partir le lendemain.  
+On pourra s'occuper ensemble du nettoyage, de la mise en place des ateliers, des courses, etc.  
+  
+Pour les repas, on imagine faire des préparation collectives et gérer ensemble la vaisselle et le ménage.  
+  
+On regardera ensemble comment gérer le budget repas et la récupération des 5 euros d'entrée.  
